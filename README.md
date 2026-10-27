@@ -1,0 +1,2 @@
+# Akaademik
+Akademik Nashir boshlanishi
